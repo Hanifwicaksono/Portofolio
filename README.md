@@ -20,7 +20,7 @@ I am open to opportunities as a **Programmer** or **Data Analyst** in both large
 - Passion for learning and continuous improvement 📚  
 
 ## 🚀 Let's Connect!
-[Publication](https://www.mdpi.com/1424-8220/22/8/3048)
+[LinkedIn](https://www.linkedin.com/in/hanif-wicaksono-394591356)
 
 I am open to connections, discussions, and collaboration opportunities.  
 📫 Feel free to reach out and connect with me!
