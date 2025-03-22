@@ -21,6 +21,7 @@ I am open to opportunities as a **Programmer** or **Data Analyst** in both large
 
 ## 🚀 Let's Connect!
 [LinkedIn](https://www.linkedin.com/in/hanif-wicaksono-394591356)
+[Instagram](https://www.instagram.com/hanifsoeryo)
 
 I am open to connections, discussions, and collaboration opportunities.  
 📫 Feel free to reach out and connect with me!
